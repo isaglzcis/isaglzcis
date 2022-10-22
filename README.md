@@ -1,6 +1,9 @@
 - 👋 Hi, I’m @isaglzcis
-- Im from Mexico, San Luis Potosí
-- I'm 22 years old 
+-  I'm from Mexico, San Luis Potosí 
+- I'm 22 years old 
+- I'm student in the UASLP
+- I work part time as a dental assistant
+
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
