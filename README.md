@@ -13,7 +13,13 @@
 - October 2022, make a podcast with the UASLP radio, about my research
 - October 2022, participate in the 'Leading Girls' in its ninth edition
 - 👀 I’m interested in ...
+- Continue developing my skills in my career, in order to innovate new products, uniting science, technology and dentistry
 - 🌱 I’m currently learning ...
+- Basic materials for dentistry; maintaining the importance of caring for the oral cavity
+- Alternatives of bacterotherapy for the care of the human being
 - 💞️ I’m looking to collaborate on ...
+- Companies interested in innovating oral health care products, promising science and technology
 - 📫 How to reach me ...
+ - Instragram: @Isaglzcis
+ - Email: isa.glz.cis@gmail.com 
 
